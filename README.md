@@ -3,5 +3,5 @@
 - 👀 Je m'intéresse à la cybersécurité
 - 🌱 J'apprends actuellement l'Ethical Hacking
 - 💞️ Je cherche à collaborer sur des projets
-- 📫 Comment me joindre Buzz me On Discord @S3rG12#1138 & Twitter @x0Sergi
+- 📫 Comment me joindre Buzz me On Discord @S3rG12#1138  Twitter @x0Sergi
 
