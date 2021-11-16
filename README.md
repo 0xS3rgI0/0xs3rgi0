@@ -3,4 +3,4 @@
 - 👀 I am interested in cybersecurity
 - 🌱 I am currently learning Ethical Hacking
 - 💞️ I am looking to collaborate on projects
-- 📫 How to reach me Buzz me On Discord @ S3rG12 # 1138 Twitter @ x0Sergi
+- 📫 How to reach me Buzz me On Discord @S3rG12#1138 Twitter @x0Sergi
